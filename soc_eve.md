@@ -44,12 +44,15 @@
 
  Join us for a fun and unforgettable evening at our conference dinner. We will have a Seafood Buffet, also including vegan and vegetarian options to cater for all tastes and preferences. The menu includes a variety of starters such as cod cakes and a selection of salads. The main courses offer exquisite flavors with dishes like seafood stew, coconut-crusted hake fillet, curry shrimp, and seafood sauce fettuccine. For our vegan/vegetarian guests, we will have options such as mushroom bobó and vegetable spaghetti with mushrooms. To end the evening on a high note, desserts include milk pudding, red berry naked cake, banoffee, and pumpkin jam. This dinner is all about great food and good Brazilian music, to create awesome memories while interacting with your peers and enjoying your time at Porto de Galinhas.
 
-- Traditional Brazilian music and dance. Performance from cultural group.
 
 ### Friday, July 19th
 
 - 6am-8am Activities at hotel's beachfront (e.g., soccer and volleyball). Contact  [George Cabral](https://geocabral.github.io).
 - 12:30pm *D&I Lunch*
+
+- Traditional Brazilian music and dance. Performance from cultural group.
+
+![bale-fse2.jpeg](https://github.com/unknown-user1234/misc/blob/main/pe_de_serra_fse.png?raw=true)
 
 ### Additional activities
 
