@@ -60,7 +60,7 @@
 
 ![bale-fse2.jpeg](https://github.com/unknown-user1234/misc/blob/main/pools_fse.png?raw=true)
 
-- *Surf lessons*: It is possible to schedule surf lessons with qualified instructors in a nearby (Maracaipe) beach with calm and shallow waters. contact [George Cabral](https://geocabral.github.io) for further information.
+- *Surf lessons*: It is possible to schedule surf lessons with qualified instructors in a nearby beach (Maracaipe) with calm and shallow waters. contact [George Cabral](https://geocabral.github.io) for further information.
 
 ![surf](https://github.com/unknown-user1234/misc/blob/main/surf2_fse.png?raw=true)
 
